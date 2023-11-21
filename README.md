@@ -1,1 +1,1 @@
-Hi, I'm Kanan Zeynalov. I'm from Azerbaijan and 20 years old. I'm currently studying in Bilkent university as a junior student in Computer Engineering faculty. I'm looking forward to be a Sofware Engineer and Cybersecurity specialist. 
+Hi, I'm Kanan Zeynalov. I'm from Azerbaijan and 20 years old. I'm currently studying in Bilkent University as a Junior student in Computer Engineering faculty.
